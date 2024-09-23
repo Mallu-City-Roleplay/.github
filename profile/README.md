@@ -1,4 +1,4 @@
-## Hi there 👋, Since 2024 
+## Hi there 👋, Since 2022 
 
 Mallu City Roleplay Established on july-1 2022.
 At our community, we value fair and considerate discussions among people from different backgrounds, and this includes FiveM as part of our platform. Our goal is to always improve and become a top-notch platform for unbiased conversations. FiveM adds an exciting dimension to our community, offering dynamic and interactive spaces where users can have meaningful discussions and bringing people together. Since, we promote inclusivity, respect, and open-mindedness, not just within FiveM, but also in our Growing community.
